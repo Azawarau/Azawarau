@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about whatever you want to ask
 - 📫 How to reach me: you can sent email to me🐰
 - 😄 Pronouns: 
-- ⚡ Fun fact: ~~actually i really like pay cs~~
+- ⚡ Fun fact: ~~actually i really like play cs~~
 -->
